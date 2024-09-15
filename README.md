@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hola, soy @HaroldOrtiz<br>👀 Estoy interesado en el desarrollo de software, especialmente en programación web y diseño de sistemas.<br>🌱 Actualmente estoy aprendiendo nuevas tecnologías y herramientas para mejorar mis habilidades en programación y desarrollo.<br>💞️ Estoy buscando colaborar en proyectos de desarrollo web y software donde pueda aportar mis conocimientos y aprender de otros.<br>📫 Puedes contactarme a través de HaroldOrtiz@outlook.es.<br>😄 Pronombres: Gumball<br>⚡ Dato curioso: Me encanta hacer deportes, jugar videojuegos y trabajar en equipo.
+-Hola, soy @HaroldOrtiz<br>👀 Estoy interesado en el desarrollo de software, especialmente en programación web y diseño de sistemas.<br>-Actualmente estoy aprendiendo nuevas tecnologías y herramientas para mejorar mis habilidades en programación y desarrollo.<br>-Estoy buscando colaborar en proyectos de desarrollo web y software donde pueda aportar mis conocimientos y aprender de otros.<br>-Puedes contactarme a través de HaroldOrtiz@outlook.es.<br>-Pronombres: Gumball<br>-Dato curioso: Me encanta hacer deportes, jugar videojuegos y trabajar en equipo.
 
 
 ## 🌐 Socials:
